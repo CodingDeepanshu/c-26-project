@@ -1,0 +1,3 @@
+Palak paneer is a vegetarian dish,consisting of paneer (a type of cottage cheese) in a thick paste made from puréed spinach, called palak in Hindi, Marathi, Gujarati, and other Indian languages.
+
+The terms palak paneer and saag paneer are sometimes used interchangeably in restaurants in the United States and Canada. However, saag paneer is different from traditional palak paneer in that it contains other green leafy vegetables, such as mustard greens, whereas palak paneer only contains spinach. Dhaba restaurants often specialize in palak paneer.
